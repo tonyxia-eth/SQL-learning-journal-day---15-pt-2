@@ -1,0 +1,1 @@
+# SQL-learning-journal-day---15-pt-2
